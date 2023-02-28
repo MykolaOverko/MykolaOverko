@@ -17,4 +17,4 @@
  - https://t.me/sanyasereda228
 ### 😄 Pronouns: Alpha/Male
 ### ⚡ Fun fact: I hope Death is a woman. That way it will never touch me.
-https://www.youtube.com/watch?v=I3kgpPeRp00&ab_channel=ZaWalrus
+[![Watch the video](https://img.youtube.com/vi/T-I3kgpPeRp00/maxresdefault.jpg)](https://youtu.be/I3kgpPeRp00)
